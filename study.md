@@ -9,4 +9,4 @@
 Занимаемая должность: **Директор Автосервиса**
 
 ![image] (https://https://abs-magazine.ru/photo/big/gm6k3t1vdvcz.jpg)
-![image](https://https://abs-magazine.ru/photo/big/gm6k3t1vdvcz.jpg)
+![image] (https://https://abs-magazine.ru/photo/big/gm6k3t1vdvcz.jpg)
